@@ -1,0 +1,2 @@
+# The-Rock-Game
+A game that i created for fun, but i made it worst!, TRY THE SUPER HIPER MEGA BLASTER NEW GAME OF THE ROCK! U WILL HAVE THE BEST 10 SECONDS OF FUN IN YOUR ENTIRE LIFE!
